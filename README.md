@@ -1,9 +1,9 @@
-## Tables# h1 Heading 8-)
-## h2 Heading
-### h3 Heading
-#### h4 Heading
-##### h5 Heading
-###### h6 Heading
+# real0nly
+##
+### today i decided we too trill 4 this
+#### 
+##### 
+###### 
 
 
 ## Horizontal Rules
@@ -116,17 +116,15 @@ Right aligned columns
 
 ## Links
 
-[link text](http://dev.nodeca.com)
+[link text](https://linktr.ee/SaintToki)
 
-[link with title](http://nodeca.github.io/pica/demo/ "title text!")
+[link text](https://www.tumblr.com/hxrrxrpxrn/767396759690412032)
 
 Autoconverted link https://github.com/nodeca/pica (enable linkify to see)
 
 
 ## Images
 
-![Minion](https://octodex.github.com/images/minion.png)
-![Stormtroopocat](https://octodex.github.com/images/stormtroopocat.jpg "The Stormtroopocat")
-
-Like links, Images also have a footnote style syntax
+![Photo Nov 19 2024, 2 20 09 AM](https://github.com/user-attachments/assets/b9225add-a440-4702-bc53-920250091c62)
+]()
 
