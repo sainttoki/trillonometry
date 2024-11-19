@@ -22,4 +22,4 @@
 
 ![Photo Nov 19 2024, 2 20 09 AM](https://github.com/user-attachments/assets/b9225add-a440-4702-bc53-920250091c62)
 
-[![early bird](https://img.youtube.com/vi/T-D1KVIuvjA/maxresdefault.jpg)](https://youtu.be/T-D1KVIuvjA)
+[![early bird](https://img.youtube.com/vi/T-D1KVIuvjA/maxresdefault.jpg)](https://youtu.be/b511NF8XBA8)
