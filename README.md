@@ -114,17 +114,17 @@ Right aligned columns
 | ext    | extension to be used for dest files. |
 
 
-## Links
+## 
 
-[link text](https://linktr.ee/SaintToki)
+[ear sex](https://linktr.ee/SaintToki)
 
-[link text](https://www.tumblr.com/hxrrxrpxrn/767396759690412032)
-
-Autoconverted link https://github.com/nodeca/pica (enable linkify to see)
+[something emerges from the south](https://www.tumblr.com/hxrrxrpxrn/767396759690412032)
 
 
-## Images
+
+
+## THIS GUY IS CURATING SOMETHING
 
 ![Photo Nov 19 2024, 2 20 09 AM](https://github.com/user-attachments/assets/b9225add-a440-4702-bc53-920250091c62)
-]()
 
+[![Watch the video](https://i.sstatic.net/Vp2cE.png)](https://youtu.be/b511NF8XBA8)
