@@ -3,7 +3,7 @@
 ### incoherent nonsense to keep the blood from covering my eyes.
 #### incriminating things coming soon 
 
-body {background-color: ##73030f}
+
 
 
 
@@ -15,7 +15,7 @@ body {background-color: ##73030f}
 
 [something emerges from the south](https://www.tumblr.com/hxrrxrpxrn/767396759690412032)
 
-
+body {background: #73030f}
 
 
 ## THIS GUY IS CURATING SOMETHING
