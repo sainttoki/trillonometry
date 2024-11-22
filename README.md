@@ -18,10 +18,10 @@
 
 
 
-## SAINTRIVERS*©
+## ƧupeЯRare*
 
 ![Photo Nov 19 2024, 2 20 09 AM](https://github.com/user-attachments/assets/b9225add-a440-4702-bc53-920250091c62)
 
-![Untitled-Artwork](https://github.com/user-attachments/assets/e7bf30eb-7c74-4f83-9aa0-9116e69b13c5)
+### SAINTRIVERS*©
 
 [[early bird]](https://youtu.be/b511NF8XBA8)
