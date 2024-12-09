@@ -1,4 +1,4 @@
-https://fontmeme.com/permalink/241209/9b6833843b336f4156fca0a372ca0b8c.png
+!(https://fontmeme.com/permalink/241209/9b6833843b336f4156fca0a372ca0b8c.png)
 
 ### incoherent nonsense to keep the blood from covering my eyes.
 #### incriminating things coming soon 
