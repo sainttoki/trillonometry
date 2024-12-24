@@ -2,13 +2,38 @@
 
 
 ### incoherent nonsense to keep the blood from covering my eyes.
-#### incriminating things coming soon 
+#### stuck in your manual car
+### i left my keys at the bar
+### you told me one more time
+### and we won’t go that far
+### you left a bruise on my neck
+### you said this feelings the best
+### i’ll give you one more scar
+### then i’ll tell you the rest
 
+### i left my head in your arms
+### you said to stay was too hard
+### you gave me one last chance
+### and i took it too far
 
+### but you never know
 
+### i lost my feet in the rave 
+### these drinks make me dance away
+### i lose your touch
+### im fucked
+### the mosh
+### is up
+### we lit enough
+### i cant breathe
 
-
-
+### i guarantee im okay
+### i just need to get awake
+### we smoke a blunt
+### i lost
+### your eyes
+### where are you love
+### where are you huh
 
 ## useful portals
 
