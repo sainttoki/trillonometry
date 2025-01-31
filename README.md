@@ -1,14 +1,14 @@
 ![9b6833843b336f4156fca0a372ca0b8c](https://github.com/user-attachments/assets/8e8de1f9-a353-46d9-804a-b833faac8087)
 
 
-### FEROC**
+### FEROCI*
 #### never know out now.
 
 ## useful portals
 
 [music*](https://linktr.ee/SaintToki)
 
-[it's a bit cold](https://x.com/sainttoki/status/1877181746967380329?s=46&t=U2OV06rjeez29mXbqB1z0w)
+[it's a bit cold](https://youtu.be/7fe3iMS0Ijo?si=yamqecolV-xIJZkJ)
 
 
 
