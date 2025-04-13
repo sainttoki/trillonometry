@@ -6,7 +6,7 @@
 
 ## useful portals
 
-[music*](https://linktr.ee/SaintToki)
+[MUSIC*](https://linktr.ee/SaintToki)
 
 [FEROCIO MV](https://youtu.be/82s6JPRH2SU?si=w9lmE_DdIJyJBA4x)
 
