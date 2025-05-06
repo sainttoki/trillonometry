@@ -8,6 +8,8 @@
 
 [MUSIC*](https://linktr.ee/SaintToki)
 
+[TRAGEDY MV](https://youtu.be/25-ZX4W1TUg?si=qEvqbS8mBK3rBlDI)
+
 [FEROCIO MV](https://youtu.be/82s6JPRH2SU?si=w9lmE_DdIJyJBA4x)
 
 
