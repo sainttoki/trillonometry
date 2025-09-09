@@ -19,7 +19,8 @@
 
 ## ƧupeЯRare*
 
-![B4ED4382-34A1-4C9B-9F29-DD117386628D](https://github.com/user-attachments/assets/73fdde6f-8d5d-43d5-92d0-fa59c5eac636)
+!<img width="2870" height="2707" alt="image" src="https://github.com/user-attachments/assets/22503847-0ec2-40e2-87f7-a62111e2b4e6" />
+
 
 
 
