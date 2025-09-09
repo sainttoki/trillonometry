@@ -19,7 +19,7 @@
 
 ## ƧupeЯRare*
 
-!<img width="2870" height="2707" alt="image" src="https://github.com/user-attachments/assets/22503847-0ec2-40e2-87f7-a62111e2b4e6" />
+<img width="2870" height="2707" alt="image" src="https://github.com/user-attachments/assets/22503847-0ec2-40e2-87f7-a62111e2b4e6" />
 
 
 
