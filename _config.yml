@@ -12,7 +12,7 @@ body {
     --color-canvas-default, copied from 
     https://github.com/sindresorhus/github-markdown-css/blob/main/github-markdown.css
     */
-    background-color: #ffffff;
+    background-color: #cc0000;
   }
 }
 
