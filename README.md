@@ -8,9 +8,9 @@
 
 [MUSIC/SHOP/RITUALZ](https://linktr.ee/SaintToki)
 
-[NOMATTERWHAT](https://youtu.be/J3yIPifsMfg?si=qtNJuRRTYB98zf9c)
+[EYPIH MUSIC VIDEO](https://youtu.be/Hac-SzysOtY?si=7Rsu8FeVFEwVh2b2)
 
-[TRAGEDY MV](https://youtu.be/25-ZX4W1TUg?si=qEvqbS8mBK3rBlDI)
+[NOMATTERWHAT](https://youtu.be/J3yIPifsMfg?si=qtNJuRRTYB98zf9c)
 
 [RAW MV](https://youtu.be/FPXPP7nGnD4?si=ogM_pvQM9vshAFW9)
 
