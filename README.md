@@ -6,7 +6,7 @@
 
 ## portals
 
-[MUSIC*SHOP*RITUALZ](https://linktr.ee/SaintToki)
+[MUSIC/SHOP/RITUALZ](https://linktr.ee/SaintToki)
 
 [NOMATTERWHAT](https://youtu.be/J3yIPifsMfg?si=qtNJuRRTYB98zf9c)
 
