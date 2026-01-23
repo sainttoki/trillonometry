@@ -5,7 +5,7 @@
 
 ##### B-SIDEZ SOON...
 
-### RITUALZOUT NOW
+### RITUALZ OUT NOW
 
 ## portals
 
