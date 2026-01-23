@@ -1,6 +1,4 @@
-<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/7846138e-8805-4d97-bf05-3e4be0192dec" />
-
-##### B-SIDEZ SOON...
+<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/41e053b7-73fb-4657-aaec-5f0f233aab89" />
 
 ### RITUALZ OUT NOW
 
