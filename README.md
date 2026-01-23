@@ -2,9 +2,6 @@
 
 <img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/655e7aa2-a829-4900-91ac-030774a425ed" />
 
-
-
-
 ##### B-SIDEZ SOON...
 
 ### RITUALZ OUT NOW
@@ -24,10 +21,7 @@
 
 ## ƧupeЯRare*
 
-<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/bc040a75-f7ae-45ab-8ef9-bd83ec0b98f4" />
-
-
-
+<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/605057fa-fe06-44c8-8d08-0b87638e3786" />
 
 ### SAINTRIVERS*©
 
