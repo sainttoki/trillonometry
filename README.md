@@ -19,7 +19,8 @@
 
 ## ƧupeЯRare*
 
-<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/605057fa-fe06-44c8-8d08-0b87638e3786" />
+<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/43ecaa24-9dc8-4dc7-aa5c-c66b03a231a3" />
+
 
 ### SAINTRIVERS*©
 
