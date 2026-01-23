@@ -1,7 +1,4 @@
-
-
-<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/0c4ec276-d39e-4d4e-ab8a-01e3f40c47b5" />
-
+<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/7846138e-8805-4d97-bf05-3e4be0192dec" />
 
 ##### B-SIDEZ SOON...
 
