@@ -1,4 +1,5 @@
-<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/41e053b7-73fb-4657-aaec-5f0f233aab89" />
+<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/1ec5229c-264d-41fa-9cf8-bd15d0513983" />
+
 
 ### RITUALZ OUT NOW
 
