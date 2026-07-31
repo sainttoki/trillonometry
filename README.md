@@ -1,8 +1,5 @@
-<img width="2598" height="3464" alt="image" src="https://github.com/user-attachments/assets/0188c418-8773-4326-a876-23e4d755e8b0" />
 
-
-
-### RITUALZ OUT NOW
+#### RITUALZ-B-SIDEZ OUT NOW
 
 ## portals
 
