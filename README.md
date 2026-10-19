@@ -1,15 +1,11 @@
-<img width="1391" height="303" alt="image" src="https://github.com/user-attachments/assets/03649c7f-108f-4559-988c-d403932ae426" />
+<img width="1022" height="222" alt="image" src="https://github.com/user-attachments/assets/666451bb-bb7c-4709-99fc-e54cb61ff888" />
+
 
 <img width="330" height="112" alt="image" src="https://github.com/user-attachments/assets/35332171-c69f-4dd2-9cde-f044ca5edd3b" />
 
-
-## portals
-
 [MUSIC/SHOP/RITUALZ](https://linktr.ee/SaintToki)
 
-[SEALZ MUSIC VIDEO](https://youtu.be/AVuc-ISkYY0?is=wGnH3vNVGOmvAWp6)
-<img width="896" height="414" alt="image" src="https://github.com/user-attachments/assets/cdf36ad8-d9ab-4928-bd5b-ccbbfa476b72" />
-
+[SEALZ MUSIC VIDEO](https://youtu.be/AVuc-ISkYY0?is=wGnH3vNVGOmvAWp6) <img width="1462" height="828" alt="image" src="https://github.com/user-attachments/assets/84b4f6d9-f69c-46e4-8210-6d5bd757dba3" />
 
 [EYPIH](https://youtu.be/Hac-SzysOtY?is=kAVVNT60ZPY2B9U6)
 
