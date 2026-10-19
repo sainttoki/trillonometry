@@ -2,7 +2,7 @@
 
 
 <img width="330" height="112" alt="image" src="https://github.com/user-attachments/assets/35332171-c69f-4dd2-9cde-f044ca5edd3b" />
-[MUSIC/SHOP/RITUALZ] (https://linktr.ee/SaintToki)
+[MUSIC/SHOP/RITUALZ](https://linktr.ee/SaintToki)
 
 [SEALZ MUSIC VIDEO](https://youtu.be/AVuc-ISkYY0?is=wGnH3vNVGOmvAWp6) <img width="1462" height="828" alt="image" src="https://github.com/user-attachments/assets/84b4f6d9-f69c-46e4-8210-6d5bd757dba3" />
 
