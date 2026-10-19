@@ -1,11 +1,12 @@
 <img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/6c19cd7b-0bd9-406b-8ab6-53923a5e749d" />
-
 <img width="330" height="112" alt="image" src="https://github.com/user-attachments/assets/35332171-c69f-4dd2-9cde-f044ca5edd3b" />
 [MUSIC/SHOP/RITUALZ](https://linktr.ee/SaintToki)
 
-[SEALZ MUSIC VIDEO](https://youtu.be/AVuc-ISkYY0?is=wGnH3vNVGOmvAWp6) <img width="1462" height="828" alt="image" src="https://github.com/user-attachments/assets/84b4f6d9-f69c-46e4-8210-6d5bd757dba3" />
+[SEALZ MUSIC VIDEO](https://youtu.be/AVuc-ISkYY0?is=wGnH3vNVGOmvAWp6) <img width="1920" height="1087" alt="image" src="https://github.com/user-attachments/assets/b562aad5-7bdf-4691-ad76-05d24767ba10" />
 
-[EYPIH](https://youtu.be/Hac-SzysOtY?is=kAVVNT60ZPY2B9U6)
+
+[EYPIH](https://youtu.be/Hac-SzysOtY?is=kAVVNT60ZPY2B9U6) <img width="1920" height="1087" alt="image" src="https://github.com/user-attachments/assets/1bccc61a-37a1-4345-a97e-bd0cc90e0673" />
+
 
 [HDAF](https://youtu.be/KxqijkWj220?is=r3bnZyPj4tNZxMTn)
 
