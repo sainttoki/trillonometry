@@ -1,8 +1,7 @@
-<img width="1022" height="222" alt="image" src="https://github.com/user-attachments/assets/666451bb-bb7c-4709-99fc-e54cb61ff888" />
+<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/96312557-a366-4565-a230-41f6772ec368" />
 
 
 <img width="330" height="112" alt="image" src="https://github.com/user-attachments/assets/35332171-c69f-4dd2-9cde-f044ca5edd3b" />
-
 [MUSIC/SHOP/RITUALZ](https://linktr.ee/SaintToki)
 
 [SEALZ MUSIC VIDEO](https://youtu.be/AVuc-ISkYY0?is=wGnH3vNVGOmvAWp6) <img width="1462" height="828" alt="image" src="https://github.com/user-attachments/assets/84b4f6d9-f69c-46e4-8210-6d5bd757dba3" />
