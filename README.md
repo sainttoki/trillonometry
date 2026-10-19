@@ -1,4 +1,5 @@
-<img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/b1a86b66-d420-48d6-a530-5ebe328d4c03" />
+<img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/6c19cd7b-0bd9-406b-8ab6-53923a5e749d" />
+
 <img width="330" height="112" alt="image" src="https://github.com/user-attachments/assets/35332171-c69f-4dd2-9cde-f044ca5edd3b" />
 [MUSIC/SHOP/RITUALZ](https://linktr.ee/SaintToki)
 
