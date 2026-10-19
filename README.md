@@ -1,15 +1,19 @@
+<img width="1391" height="303" alt="image" src="https://github.com/user-attachments/assets/03649c7f-108f-4559-988c-d403932ae426" />
 
-#### RITUALZ-B-SIDEZ OUT NOW
+<img width="330" height="112" alt="image" src="https://github.com/user-attachments/assets/35332171-c69f-4dd2-9cde-f044ca5edd3b" />
+
 
 ## portals
 
 [MUSIC/SHOP/RITUALZ](https://linktr.ee/SaintToki)
 
-[EYPIH MUSIC VIDEO](https://youtu.be/Hac-SzysOtY?si=7Rsu8FeVFEwVh2b2)
+[SEALZ MUSIC VIDEO](https://youtu.be/AVuc-ISkYY0?is=wGnH3vNVGOmvAWp6)
+<img width="896" height="414" alt="image" src="https://github.com/user-attachments/assets/cdf36ad8-d9ab-4928-bd5b-ccbbfa476b72" />
 
-[NOMATTERWHAT](https://youtu.be/J3yIPifsMfg?si=qtNJuRRTYB98zf9c)
 
-[RAW MV](https://youtu.be/FPXPP7nGnD4?si=ogM_pvQM9vshAFW9)
+[EYPIH](https://youtu.be/Hac-SzysOtY?is=kAVVNT60ZPY2B9U6)
+
+[HDAF](https://youtu.be/KxqijkWj220?is=r3bnZyPj4tNZxMTn)
 
 
 
